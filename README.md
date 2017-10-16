@@ -1,0 +1,1 @@
+# Uso-de-Aprendizagem-Para-Identificar-a-Ocorr-ncia-de-Tremor-Em-Indiv-duos-Portadores-da-Doen-a-de-Pa
